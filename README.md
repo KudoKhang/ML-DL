@@ -4,4 +4,4 @@
 - **Học mà không nắm được cái gốc của vấn đề, đó là học trên ngọn.**
 
 
-![alt](https://codelearn.io/Upload/Blog/thuat-toan-la-gi-hoc-thuat-toan-lam-quai-gi-63713613987.6709.jfif)
+![alt](https://codelearn.io/Upload/Blog/thuat-toan-la-gi-hoc-thuat-toan-lam-quai-gi-63713613987.6709.jfif#center)
